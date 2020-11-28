@@ -21,3 +21,5 @@
 ###  Disclaimer
 
 ⚡ still work in progress
+
+🧐 We look to harness blackhole energy, We are curently developing a *digital twin* of a black hole with myquantung technology... ☠️
